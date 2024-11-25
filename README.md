@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...g
 - 😄 Pronouns: ...54
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...dg
 2
 <!---
 popopofar/popopofar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
