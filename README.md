@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @popopofar54
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...45121
+- 🌱 I’m currently learning ...45121wer
 - 💞️ I’m looking to collaborate on ...465
 - 📫 How to reach me ...g5
 - 😄 Pronouns: ...54
