@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...wer
 - 🌱 I’m currently learning ...45121wer
 - 💞️ I’m looking to collaborate on ...465
-- 📫 How to reach me ...g5
+- 📫 How to reach me ...g5sfda
 - 😄 Pronouns: ...54
 - ⚡ Fun fact: ...dgsfd
 2
