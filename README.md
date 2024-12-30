@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @popopofar54
 - 👀 I’m interested in ...wersdfe3336
 - 🌱 I’m currently learning ...45121wersdafrf
-- 💞️ I’m looking to collaborate on ...4652112rw
+- 💞️ I’m looking to collaborate on ...4652112rwere
 - 📫 How to reach me ...g5sfda
 - 😄 Pronouns: ...54
 - ⚡ Fun fact: ...dgsfd
