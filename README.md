@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...4652112rwerednfd54645
 - 📫 How to reach me ...g5sfdarhweqqw
 - 😄 Pronouns: ...545151
-- ⚡ Fun fact: ...dgsfdsfdvc
+- ⚡ Fun fact: ...dgsfdsfdvcwqfff
 2223
 <!---
 popopofar/popopofar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.ggf
