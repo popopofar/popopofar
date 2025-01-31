@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...45121wersdafrfnh366bgdfsds
 - 💞️ I’m looking to collaborate on ...4652112rwerednfd54645sfe96
 - 📫 How to reach me ...g5sfdarhweqqw
-- 😄 Pronouns: ...545151333
+- 😄 Pronouns: ...545151333grgrg
 2223xx
 <!---
 popopofar/popopofar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.ggf
