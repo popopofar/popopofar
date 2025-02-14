@@ -5,7 +5,7 @@ ertet- 👋 Hi, I’m @popopofar54
 - 😄 Pronouns: ...545151333grgrg
 2223xx66+bgfgf
 <!---vxc
-popopofar/popopofar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.ggf
+popopofar/popopofar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.ggfbf cvcxcxcx
 You can click the Preview link to take a look at your changes.
 --->
 c
